@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm current studying <br>I'm Fulfillment Ecommerce <br>I'm Dsp Ebike<br>I'm Food Runner<br>I'm Produce Supermarket<br>I'm Frozen Supermarket
+I'm current studying <br>Have experience Fulfillment Ecommerce <br>I'm Dsp Ebike<br>Have experience Food Runner<br>Have experience Produce Supermarket<br>Have experience Frozen Supermarket
 
 
 ## 🌐 Socials:
